@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @KingChikwe
+- 👋 Hi, I’m King Chikwe
 - 👀 I’m interested in Blockchain technology
 - 🌱 I’m currently a Brand Ambassador for Polkadot and a Community moderator & Ambassador for ATTA
 - 💞️ I’m looking to collaborate on any positively impacting project
